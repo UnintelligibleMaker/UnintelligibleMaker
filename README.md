@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @UnintelligibleMaker
+- 👀 I’m interested in Makering in all forms.  3D printing, laser cutting, woodworking, embrodery, sewing, and more and always adding more.  Often involving code.
+- 🌱 I’m currently learning to share my code via OSS.
+- 📫 How to reach me maker@unintelligiblemaker.com, https://www.reddit.com/user/UnintelligibleMaker, https://www.instagram.com/unintelligiblemakering/
+- 😄 Pronouns: he/him
