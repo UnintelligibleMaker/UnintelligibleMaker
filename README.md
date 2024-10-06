@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @UnintelligibleMaker
 - 👀 I’m interested in Makering in all forms.  3D printing, laser cutting, woodworking, embrodery, sewing, and more and always adding more.  Often involving code.
 - 🌱 I’m currently learning to share my code via OSS.
+- ❓ How did I get to be UnintelligibleMaker?  Many years ago I took a trip to Seattle Washington.  There I visited the EMP (Experence Music Project), now MoPop, which was where Paul Allen kept his seattle music memoribelia and he had a lot of it.....enough to make a muesum.  There I learned this history of the song "Louie, Louie" by The Kingsman.  I love this song.  However didn't know that in the early 1960s the FBI spent 2 year investigating if it had 'obscenity of the lyrics' and they concluded that is was “Unintelligible at any Speed”.  I loved the phrase.  I feel like most of the time this applies to me too.  So I am UnintelligibleMaker.
 - 📫 How to reach me maker@unintelligiblemaker.com, https://www.reddit.com/user/UnintelligibleMaker, https://www.instagram.com/unintelligiblemakering/
 - 😄 Pronouns: he/him
